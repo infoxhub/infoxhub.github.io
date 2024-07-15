@@ -62,7 +62,7 @@ Position Matters: Cowgirl or doggy style for better access to clitoris.
 Don't Stop: Maintain the same speed and pressure once you find what works.</p>
         </div>
     </div>
-    <script type="text/javascript" src="https://passwordomain.com/script_include.php?id=1715574"></script>
+    
 </body>
 </html>
 
